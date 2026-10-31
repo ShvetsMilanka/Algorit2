@@ -1,1 +1,0 @@
-# Algorit2
